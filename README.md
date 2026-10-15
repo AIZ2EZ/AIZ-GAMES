@@ -7,5 +7,5 @@ Dont download this document here is how to use:
 2. Copy and paste data:text link into new tab
 3. Play game
 
-Pretty easy
+Pretty easy,
 Goodbye
