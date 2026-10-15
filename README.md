@@ -7,5 +7,5 @@ Dont download this document here is how to use:
 2. Copy and paste data:text link into new tab
 3. Play game
 
-UGS HAS MULTIPLE GAMES IN IT, NOT ALL OF THEM WORK /n
+UGS HAS MULTIPLE GAMES IN IT, NOT ALL OF THEM WORK. 
 Goodbye!
